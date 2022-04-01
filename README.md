@@ -1,5 +1,5 @@
 # GPS-tracking-devices-can-be-harmful-to-kids-and-pets
-Does using GPS tracking devices can be harmful to kids and pets?
+https://www.paj-gps.us/
 Day in and day out, there are new technologies to learn about. They have the capability to enhance people's personal and professional life. But ever since the human population started witnessing great advancements in technology, people are becoming skeptical and anxious about the hazards it may cause to their health and safety. The news on radiation that results in cancer and other deadly diseases is making people freak out every day.
 
 The GPS, or Global Positioning System, is one such big piece of technology that many of us utilize on a daily basis yet often neglect. And it's undeniable that GPS is a highly accurate and useful technology. GPS navigation is used by the trucks, vessels, and airlines that make commerce feasible. People, however, continue to have reservations about this technology and how it affects our well-being. For example, there is a widespread belief that GPS signals are simply too powerful for the human body to handle.
